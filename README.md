@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working on getting up a website for fun!
-- 🌱 I’m currently learning how to program - it's so cool 8D
-- 💬 Ask me about - 
+- 🌱 Learning how to program - and build projects :)
+- 💬 Ask me about - ?
 
 - 😄 Pronouns: She / Her
 
